@@ -1,0 +1,1 @@
+# IvanaYunitasari_191011400190_06TPLM002_Uts-Kecerdasan-Buatan
